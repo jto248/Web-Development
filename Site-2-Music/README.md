@@ -1,3 +1,5 @@
 Site 2 - Music
 ==============
-[This site does not have an official link yet.]
+http://myguitarlife.host22.com/
+
+Note: This site has no working links yet.
